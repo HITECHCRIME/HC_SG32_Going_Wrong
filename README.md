@@ -19,11 +19,12 @@ i'm not gonna sway
 [VERSE 1]
 fucking moth from the past
 did the things that wouldn't last
-xxxx of the cost
+out the cost out of lust
 ain't asking any more pointless questions
 just the vital ones, just the ones that will make you rise
-what do i want
-what do you hide
+what you want
+what you hide
+tell me i'll accept everything that you are
 
 [VERSE 2]
 light from the trenches
