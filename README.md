@@ -9,27 +9,28 @@ lighter clicks
 - people say don't stick your head above the crowd
 - am i going wrong way yeah?
 
-am i going wrong?
+am i going wrong way yeah?
 
-[CHORUS]
-going wrong way
+[CHORUS] x2
+am i going wrong way
 going wrong waaay
 i'm not gonna sway
 
 [VERSE 1]
 fucking moth from the past
 did the things that wouldn't last
-out the cost out of lust
+out of cost out of lust
 ain't asking any more pointless questions
 just the vital ones, just the ones that will make you rise
-what you want
-what you hide
-tell me i'll accept everything that you are
+what you want, what you hide
+tell me more 
+i'll accept everything you are
+lift you is it wrong?
 
 [VERSE 2]
 light from the trenches
 peaceful and vengeful 
-at the top of the
+at the top of the dimensions
 
 
 
