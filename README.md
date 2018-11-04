@@ -19,6 +19,7 @@ i'm not gonna sway
 [VERSE 1]
 fucking moth from the past
 did the things that wouldn't last
+xxxx of the cost
 ain't asking any more pointless questions
 just the vital ones, just the ones that will make you rise
 what do i want
