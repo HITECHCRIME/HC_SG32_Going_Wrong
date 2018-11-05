@@ -20,7 +20,7 @@ i'm not gonna sway
 fucking moth from the past
 did the things that wouldn't last
 out of cost out of lust
-ain't asking any more pointless questions
+ain't asking more pointless questions
 just the vital ones, just the ones that will make you rise
 what you want, what you hide
 tell me more 
