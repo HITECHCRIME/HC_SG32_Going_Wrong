@@ -22,12 +22,12 @@ fevered moth seeing bright
 fell for paths that couldn't last
 out of cost, out of lust - for posing questions 
 pointless questions - just the vital ones, 
-just the ones that would make them rise 
-what they want, what they hide at
+just the ones that would make you rise 
+what you want, what you hide at
 counted odds, tell me something's wrong
 myriads hold everything what they are 
-so i ask my hidden core
-while tellin'em to never fold
+asking my hidden core growing cold
+tellin'em to never fold
 lift you is it wrong?
 lift you is it wrong yeah?
 
@@ -45,8 +45,7 @@ just the vital ones, just the ones that will make them rise
 what they want, what they hide at
 
 tell me more 
-i'll accept everything you are
-
+i'll accept everything that you are
 lift you is it wrong yeah? x2
 
 am i going wrong way yeah?
