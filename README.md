@@ -20,14 +20,18 @@ i don't ever wanna sway ya
 [VERSE 1]
 fevered moth seeing bright
 fell for paths that couldn't last
+
 out of cost, out of lust - for asking questions 
-pointless questions - just the vital ones, 
+pointless questions - just the vital ones
+
 just the ones that would make you rise 
 what you want, what you hide at
+
 counted odds, myriads hold everything what you are
-something's wrong
-asking my inner core growing cold
+
+something's wrong, growing cold
 tellin you to never fold
+
 lift you is it wrong yeah?
 
 [CHORUS] x2
@@ -36,7 +40,7 @@ am i going wrong way
 i'm don't ever wanna sway ya
 
 no pointless questions
-just the vital ones, just the ones that will make you rise
+just the vital ones, just the ones that would make you rise
 what you want, what you hide at
 
 tell me more 
