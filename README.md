@@ -18,23 +18,18 @@ am i goin' wrong way
 i don't ever wanna sway ya
 
 [VERSE 1]
-fevered moth seeing light
-did the things that couldn't last
-out of cost, out of lust
-for asking questions - pointless questions
-just the vital ones, just the ones 
-that would make them rise 
-what they want, what they hide aye
-
-counted odds, i accept everything what you are, 
+fevered moth seeing bright
+fell for paths that couldn't last
+out of cost, out of lust - for posing questions 
+pointless questions - just the vital ones, 
+just the ones that would make them rise 
+what they want, what they hide at
+counted odds, tell me something's wrong
+myriads hold everything what they are 
+so i ask my hidden core
+while tellin'em to never fold
 lift you is it wrong?
 lift you is it wrong yeah?
-
-lift you is it wrong yeah?
-
-my word against illusion
-tell me more before oblivion
-so i ask you
 
 [CHORUS] x2
 am i going wrong way
@@ -46,8 +41,8 @@ did the things that wouldn't last
 7 builds the future 
 
 no pointless questions
-just the vital ones, just the ones that will make you rise
-what you want, what you hide aye
+just the vital ones, just the ones that will make them rise
+what they want, what they hide at
 
 tell me more 
 i'll accept everything you are
@@ -68,6 +63,8 @@ at the top of the dimensions
 
 repo of your mind
 even the sadist in me wants it badly
+my word against illusion
+tell me more before oblivion
 
 
 
