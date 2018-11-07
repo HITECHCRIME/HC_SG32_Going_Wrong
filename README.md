@@ -18,16 +18,17 @@ am i goin' wrong way
 i don't ever wanna sway ya
 
 [VERSE 1]
-fucking moth from the past
+fevered moth from the past
 did the things that couldn't last
 out of cost, out of lust
 for asking questions - pointless questions
 just the vital ones, just the ones 
 that will make you rise 
 what you want, what you hide aye
-for me, tell me more, i'll accept everything what you are
+count the odds, i'll accept everything what you are
 lift you is it wrong?
 lift you is it wrong yeah?
+tell me more before oblivion 
 
 lift you is it wrong yeah?
 
