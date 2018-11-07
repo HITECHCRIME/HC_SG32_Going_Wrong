@@ -20,14 +20,13 @@ i don't ever wanna sway ya
 [VERSE 1]
 fevered moth seeing bright
 fell for paths that couldn't last
-
-out of cost, out of lust - for asking questions 
+out of cost, out of lust - for asking questions  
 pointless questions - just the vital ones
 
 just the ones that would make you rise 
 what you want, what you hide at
-
-counted odds, myriads hold everything what you are
+counting odds, myriads hold
+- everything what you are
 
 something's wrong, growing cold
 tellin you to never fold
