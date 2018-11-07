@@ -23,18 +23,17 @@ did the things that couldn't last
 out of cost, out of lust
 for asking questions - pointless questions
 just the vital ones, just the ones 
-that will make you rise 
-what you want, what you hide aye
-count the odds, i'll accept everything what you are
+that would make them rise 
+what they want, what they hide aye
+
+counted odds, i accept everything what you are, 
 lift you is it wrong?
 lift you is it wrong yeah?
-tell me more before oblivion 
 
 lift you is it wrong yeah?
 
-repo of your mind
-even the sadist in me wants it badly
-
+my word against illusion
+tell me more before oblivion
 so i ask you
 
 [CHORUS] x2
@@ -66,6 +65,9 @@ i'm don't ever wanna sway ya
 light from the trenches
 peaceful and vengeful 
 at the top of the dimensions
+
+repo of your mind
+even the sadist in me wants it badly
 
 
 
