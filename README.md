@@ -20,15 +20,14 @@ i don't ever wanna sway ya
 [VERSE 1]
 fevered moth seeing bright
 fell for paths that couldn't last
-out of cost, out of lust - for posing questions 
+out of cost, out of lust - for asking questions 
 pointless questions - just the vital ones, 
 just the ones that would make you rise 
 what you want, what you hide at
-counted odds, tell me something's wrong
-myriads hold everything what they are 
-asking my hidden core growing cold
-tellin'em to never fold
-lift you is it wrong?
+counted odds, myriads hold everything what you are
+something's wrong
+asking my inner core growing cold
+tellin you to never fold
 lift you is it wrong yeah?
 
 [CHORUS] x2
@@ -36,13 +35,9 @@ am i going wrong way
 am i going wrong way
 i'm don't ever wanna sway ya
 
-current moth of the present
-did the things that wouldn't last
-7 builds the future 
-
 no pointless questions
-just the vital ones, just the ones that will make them rise
-what they want, what they hide at
+just the vital ones, just the ones that will make you rise
+what you want, what you hide at
 
 tell me more 
 i'll accept everything that you are
@@ -64,6 +59,10 @@ repo of your mind
 even the sadist in me wants it badly
 my word against illusion
 tell me more before oblivion
+
+current moth of the present
+did the things that wouldn't last
+7 builds the future 
 
 
 
