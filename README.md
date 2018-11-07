@@ -18,7 +18,7 @@ am i goin' wrong way
 i don't ever wanna sway ya
 
 [VERSE 1]
-fevered moth from the past
+fevered moth seeing light
 did the things that couldn't last
 out of cost, out of lust
 for asking questions - pointless questions
