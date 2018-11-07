@@ -9,33 +9,45 @@ lighter clicks
 - people say don't stick your head above the crowd
 - am i going wrong way yeah?
 
-going wrong way
+wrong way yeah
 am i going wrong way yeah?
 
 [CHORUS] x2
-am i going wrong way
-am i going wrong way
-i'm don't really wanna sway you
+am i goin' wrong way
+am i goin' wrong way
+i don't ever wanna sway ya
 
 [VERSE 1]
 fucking moth from the past
-did the things that wouldn't last
+did the things that couldn't last
 out of cost, out of lust
-ain't asking any more pointless questions
-just the vital ones, just the ones that will make you rise
-what you want, what you hide 
-tell me more 
-i'll accept everything you are
-lift you is it wrong yeah? x2
+for asking questions - pointless questions
+just the vital ones, just the ones 
+that will make you rise 
+what you want, what you hide aye
+for me, tell me more, i'll accept everything what you are
+lift you is it wrong?
+lift you is it wrong yeah?
 
 lift you is it wrong yeah?
 
-fucking moth from the past
-did the things that wouldn't last
+repo of your mind
+even the sadist in me wants it badly
 
-more pointless questions
+so i ask you
+
+[CHORUS] x2
+am i going wrong way
+am i going wrong way
+i'm don't ever wanna sway ya
+
+current moth of the present
+did the things that wouldn't last
+7 builds the future 
+
+no pointless questions
 just the vital ones, just the ones that will make you rise
-what you want, what you hide
+what you want, what you hide aye
 
 tell me more 
 i'll accept everything you are
@@ -47,7 +59,7 @@ am i going wrong way yeah?
 [CHORUS] x2
 am i going wrong way
 am i going wrong way
-i'm don't wanna sway
+i'm don't ever wanna sway ya
 
 [VERSE 2]
 light from the trenches
