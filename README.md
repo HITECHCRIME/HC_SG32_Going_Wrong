@@ -70,6 +70,49 @@ did the things that wouldn't last
 
 
 
+------ version 2
+
+[HOOK]
+wrong way yeah
+am i going wrong way yeah
+
+[CHORUS]
+am i going wrong way x2
+i don't ever wanna sway ya
+
+[VERSE 1]
+fevered moth seeing bright 
+fell for paths that wouldn't last
+out of cost out of lust
+i ain't asking more pointless questions 
+just the vital ones, just the ones 
+that will make you rise
+what you want, what you hide at
+counting odds, myriads hold
+everything that you are
+
+lift you is it wrong 
+lift you is it wrong yeah?
+
+something's wrong, 
+i'm growing cold telling you to never ever fold
+
+lift you is it wrong yeah?
+
+fevered moth seeing bright 
+fell for paths that wouldn't last
+
+no pointless questions just the vital ones, just the ones that would make you rise what you want, what you hide at
+
+tell me more i'll accept everything that you are
+lift you is it wrong yeah? x2
+
+am i going wrong way yeah
+
+[CHORUS]
+am i going wrong way x2
+i don't ever wanna sway ya
+
 
 
 
