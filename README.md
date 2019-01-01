@@ -65,7 +65,8 @@ tell me more before oblivion
 
 current moth of the present
 did the things that wouldn't last
-7 builds the future 
+7 builds the future, sandcastles
+thrown through time
 
 
 
