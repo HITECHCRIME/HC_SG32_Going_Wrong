@@ -24,10 +24,14 @@ out of cost, out of lust - for asking questions
 pointless questions - just the vital ones
 just the ones that would make you rise 
 what you want, what you hide at
+
 counting odds, myriads hold
 - everything what you are
 something's wrong, growing cold
 tellin you to never fold
+x
+x
+x
 
 lift you is it wrong yeah?
 
@@ -87,6 +91,7 @@ i ain't asking more pointless questions
 just the vital ones, just the ones 
 that will make you rise
 what you want, what you hide at
+
 counting odds, myriads hold
 everything that you are
 
