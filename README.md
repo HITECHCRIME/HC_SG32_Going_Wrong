@@ -20,8 +20,8 @@ i don't ever wanna sway ya
 
 [VERSE 1]
 fevered moth seeing bright ???
-fell for paths that couldn't last
-out of cost, out of lust - for asking questions  
+went for paths that wouldn't last
+out of cost, out of lust - for asking questions  (i ain't asking more)
 pointless questions - just the vital ones
 just the ones that would make you rise 
 what you want, what you hide at
@@ -45,7 +45,7 @@ no pointless questions
 just the vital ones, just the ones that would make you rise
 what you want, what you hide at
 
-tell me more 
+tell me more (ending with "ong")
 i'll accept everything that you are
 lift you is it wrong yeah? x2
 
