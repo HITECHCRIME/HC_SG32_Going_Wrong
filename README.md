@@ -1,4 +1,4 @@
-# HC_SG32_going_wrong
+# MOTHNODE_ Going Wrong
 Hitech Crime Single 'Going Wrong' Part I
 with dedication to Hana
 
