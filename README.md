@@ -4,6 +4,10 @@ with dedication to Hana
 
 **Song:** DRAKE x TRAVIS SCOTT Type Beat  SICKO TRAP  PROD  KÜBE.wav
 
+## Lyrics
+
+```
+
 [INTRO]
 lighter clicks
 - you gotta do something with your life
@@ -117,6 +121,8 @@ am i going wrong way yeah
 [CHORUS]
 am i going wrong way x2
 i don't ever wanna sway ya
+
+```
 
 
 
