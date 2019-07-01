@@ -7,7 +7,6 @@ with dedication to Hana
 ## Lyrics
 
 ```
-
 [INTRO]
 lighter clicks
 - you gotta do something with your life
